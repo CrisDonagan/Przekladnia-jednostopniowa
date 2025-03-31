@@ -1,0 +1,1 @@
+# Przekladnia-jednostopniowa
